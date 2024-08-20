@@ -1,4 +1,4 @@
-## Hi there 👋
+![Basket-cartoon-charlieburp-cute-pikachu-Favim com-238931 0](https://github.com/user-attachments/assets/a0811a8c-367d-4ce4-93ff-0913a87c7070)
 
 <!--
 **denysooz/denysooz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
